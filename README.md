@@ -178,5 +178,7 @@ echo "
 
 **Inshallah. Ara. Kiss. Vanish.**  
 **#RosaraBoss #K2KING #VeridianAegis**  
-**The grid is in your hands. Now drop it in the parking lot.**# TheMafiaKiss5
-#3035
+**The grid is in your hands. Now drop it in the parking lot.**
+
+#TheMafiaKiss5
+#303550
